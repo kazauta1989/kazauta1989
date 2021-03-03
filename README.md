@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi I'm Ray 👋
 
 <!--
 **kazauta1989/kazauta1989** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
